@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Bacherat
+- 👋 Hi, I’m @Bacherat. Very grateful to be apart of this platform .
 - 👀 I’m interested in learning how to be of service in this community and in others. ..
 - 🌱 I’m currently learning saas and jira. 
 - 💞️ I’m looking to collaborate on the above learning ventures....
